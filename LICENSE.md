@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows automatic Transition: slow-motion & motion-tracking is the best DaVinci Resolve for PC | DaVinci Resolve for Windows
 
 
 
